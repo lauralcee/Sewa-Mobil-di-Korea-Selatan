@@ -1,1 +1,2 @@
-# Sewa-Mobil-di-Korea-Selatan
+# Sewa Mobil di Korea Selatan
+[Sewa mobil di korea selatan](https://www.car-rental-korea.com/index_bhs.html) agencies primarily serve people who require a temporary vehicle, for example, those who do not own their own car, travelers who are out of town, or owners of damaged or destroyed vehicles who are awaiting repair or insurance compensation. Most car rentals in the U.S. do not have mileage limits, meaning you can put as many miles as you want on the vehicle.
